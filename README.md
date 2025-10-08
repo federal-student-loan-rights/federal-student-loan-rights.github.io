@@ -60,4 +60,4 @@ The **Master Promissory Note (MPN)** — a legal document you sign before receiv
 ---
 
 ### 👉 Go to the Full Article:
-[**What Document Explains Your Rights and Responsibilities as a Federal Student Loan Borrower?**](https://www.nationainews.com/rights-responsibilities-federal-student-loan/)
+[**What Document Explains Your Rights and Responsibilities as a Federal Student Loan Borrower?**](https://www.careerguidancegroup.com/what-document-explains-your-rights-and-responsibilities-as-a-federal-student-loan-borrower/)
